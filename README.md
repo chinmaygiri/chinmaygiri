@@ -1,4 +1,4 @@
-👋 Hi, I'm @chinmaygiri 🤓
+# 👋 Hi, I'm @chinmaygiri 🤓
 
 👀 I'm interested in:
 
